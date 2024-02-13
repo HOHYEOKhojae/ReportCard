@@ -1,4 +1,5 @@
-![image](https://github.com/hyeokinen/DoubleH_ScoreData/assets/87744606/e842aa70-5820-4ed4-870e-20fdb42762ed)
+![image](https://github.com/HOHYEOKhojae/ReportCard/assets/87744606/39b51169-c14c-443e-8e56-312f768ed899)
+
 
 # Our PurPose
 ### **That‘s one small step for Double H, one giant leap for mankind**
